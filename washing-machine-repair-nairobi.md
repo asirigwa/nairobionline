@@ -1,4 +1,4 @@
-Washing Machine Repair in Nairobi
+## **Washing Machine Repair in Nairobi**
 Looking for Washing Machine Repair in Nairobi? Or Washing Machine Repair Near Me in Nairobi, Kenya? You can find amazingly reliable washer repair services from experienced appliance repair technicians in your area Now!
 Washing machine repair is our specialty at Appliance Repair-KE Repair Nairobi and we engage in the installation, maintenance, repair, and service and parts replacement of washing machines and tumble dryers in and around Nairobi Kenya. 
 
